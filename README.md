@@ -1,5 +1,4 @@
 Hello World,
-
 I'm Vyom but you can call me ✨ Vyomie ✨
 
 -Sophomore(Highschool)
